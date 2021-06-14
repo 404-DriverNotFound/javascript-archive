@@ -1,7 +1,0 @@
-## holee
-
-## jwon
-
-## yechoi
-
-## yshin
